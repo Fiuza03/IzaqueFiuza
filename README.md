@@ -43,5 +43,6 @@ Meu objetivo é aplicar IA para automatizar processos, melhorar experiências e 
 
 ## 📞 Contato
 
-📍 LinkedIn: https://www.linkedin.com/in/izaque-fiuza-478124260/
+📍 LinkedIn: https://www.linkedin.com/in/izaque-fiuza-478124260/ 
+📧 e-mail: izaquefiuza60@gmail.com
 
